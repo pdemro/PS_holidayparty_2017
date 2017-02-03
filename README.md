@@ -4,16 +4,22 @@ Bar hopping after the PS holiday party
 
 1900-2100 - Official Holiday Party
 
-2100-2130 - Wrap up, finish wine
+2100-2115 - Wrap up, finish wine
 
-2130-2145 - Walk to Maxines
+2115-2130 - Walk to **Maxines** https://goo.gl/maps/Y9VAG2EYp6P2
 
-2200-2230 - Maxines for espresso/cocktail
+2130-2200 - Maxines for espresso/cocktail
 
-2230-2300 - Walk to J Paul's https://goo.gl/maps/wWdT6vmWvwr
+2200-2215 - Walk to **Pinstripes** https://goo.gl/maps/4zsA2pkvTQ12
 
-2300-2330 - J Paul's for a Cocktail 
+2215-2300 - Bocce & cocktails @ Pinstripes
 
-chinese disco
+2300-2315 - Walk to **Mr. Smith's of Georgetown** https://goo.gl/maps/rw1xqHfpTGH2
 
-Georgetown piano bar
+2315-0000 - Live Piano!
+
+0000-0015 - Walk/Taxi to **L2 Lounge** https://goo.gl/maps/43RZfcxFKz62
+
+0015-???  - Cocktails & dancing @ L2!
+
+
