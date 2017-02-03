@@ -10,6 +10,10 @@ Bar hopping after the PS holiday party
 
 2200-2230 - Maxines for espresso/cocktail
 
-2230-2300 - Walk to Bodega for Mohitos
+2230-2300 - Walk to J Paul's https://goo.gl/maps/wWdT6vmWvwr
 
-2300-2330 - Bodega for Mohitos/tapas
+2300-2330 - J Paul's for a Cocktail 
+
+chinese disco
+
+Georgetown piano bar
