@@ -10,7 +10,7 @@ Bar hopping after the PS holiday party
 
 2130-2200 - Maxines for espresso/cocktail
 
-2200-2215 - Walk to **Pinstripes** https://goo.gl/maps/4zsA2pkvTQ12
+2200-2215 - Walk to j  Paul's NOT **Pinstripes** https://goo.gl/maps/4zsA2pkvTQ12
 
 2215-2300 - Bocce & cocktails @ Pinstripes
 
