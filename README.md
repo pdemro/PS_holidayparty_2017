@@ -12,7 +12,7 @@ Bar hopping after the PS holiday party
 
 2200-2215 - Walk to j  Paul's NOT **Pinstripes** https://goo.gl/maps/4zsA2pkvTQ12
 
-2215-2300 - Bocce & cocktails @ Pinstripes
+2215-2300 - cocktails @ J Paul's
 
 2300-2315 - Walk to **Mr. Smith's of Georgetown** https://goo.gl/maps/rw1xqHfpTGH2
 
